@@ -1,4 +1,5 @@
-![1000002027](https://github.com/user-attachments/assets/aa6d7f85-6b32-4838-afe5-00534cc32256)
+![1000002043](https://github.com/user-attachments/assets/62a43b14-2397-4903-94c8-edfc179f7185)
 
-why is eru tapping
+
+why is this tapping
 dm @ iue9 for invite
